@@ -1,4 +1,4 @@
-
+Experience anime card clash like never before with anime card clash Scripts updated, the #1 Script. Includes no clip and auto-farm for unbeatable
 
 
 
